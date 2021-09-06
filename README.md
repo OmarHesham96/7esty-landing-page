@@ -1,1 +1,0 @@
-# 7esty-landing-page
